@@ -1,4 +1,6 @@
 i like when men hit each other
+![50d4ef1a](https://github.com/user-attachments/assets/f034bcb5-f7ca-48f7-bf92-19feca9cedb6)
+
 <div align="center">
 <video src= https://github.com/user-attachments/assets/5ea9b873-6fee-4df7-8a99-576607f68a0e width="400" />
 </div>
