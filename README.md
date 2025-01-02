@@ -19,7 +19,8 @@ i like when men hit each other
 
 
   
-![frank_sinatra_stamp_by_apexigod_d130xv8-fullview](https://github.com/user-attachments/assets/37a02f22-2ef5-4b59-8756-ffd2ec3bd14e) ![rob_zombie_stamp_by_danidaeskye_d18x5vu-fullview](https://github.com/user-attachments/assets/913de91a-55ff-4bdf-99f7-3e913b784b76) ![d17svmn-898c6682-7d38-4ffe-9eed-af16610a8662](https://github.com/user-attachments/assets/fa239fce-1c73-42e4-8686-8ba1c1fb1861) ![slipknot_stamp_by_hellviewresident_d4ngp6j-fullview](https://github.com/user-attachments/assets/49da3ec0-2c38-4392-b89d-a7a941b40d27) ![d35fzob-932951c2-c905-432a-834e-45811718293b](https://github.com/user-attachments/assets/e9d9f183-dfd3-4480-9741-c9c2a578d4fe)
+![frank_sinatra_stamp_by_apexigod_d130xv8-fullview](https://github.com/user-attachments/assets/37a02f22-2ef5-4b59-8756-ffd2ec3bd14e) ![nine_inch_nails_logo_stamp_by_raven_pryde_d3h2cgi-fullview](https://github.com/user-attachments/assets/9217cb27-4a1c-4ebc-9e16-99a2c3b1c5fe)
+![rob_zombie_stamp_by_danidaeskye_d18x5vu-fullview](https://github.com/user-attachments/assets/913de91a-55ff-4bdf-99f7-3e913b784b76) ![d17svmn-898c6682-7d38-4ffe-9eed-af16610a8662](https://github.com/user-attachments/assets/fa239fce-1c73-42e4-8686-8ba1c1fb1861) ![slipknot_stamp_by_hellviewresident_d4ngp6j-fullview](https://github.com/user-attachments/assets/49da3ec0-2c38-4392-b89d-a7a941b40d27) ![d35fzob-932951c2-c905-432a-834e-45811718293b](https://github.com/user-attachments/assets/e9d9f183-dfd3-4480-9741-c9c2a578d4fe)
 
 
 ![021e7f76](https://github.com/user-attachments/assets/95a93ba4-9ee3-4d61-875d-9cbd94ef19a6) 
